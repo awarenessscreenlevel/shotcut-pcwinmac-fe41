@@ -1,4 +1,4 @@
-# 
+# Meilleur Shotcut effets pour Mac OS | Élite Shotcut effets pour PC Windows. Avec outils caméra et fond vert — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
